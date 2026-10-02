@@ -1,2 +1,2 @@
 # my_python
-Hasil nonton tutorial link 1
+Hasil nonton tutorial link 1, hasilnya tidak sesuai karena tidak pakai laptop...
